@@ -1,2 +1,2 @@
 # domo.rem81
-Fichiers téléchargeables de puis domo.rem81.com
+Fichiers téléchargeables depuis domo.rem81.com
